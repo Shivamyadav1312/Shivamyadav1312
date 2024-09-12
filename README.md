@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **sy5952832@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1v16fbtfk8-Koa26i8Gu2KPpIsK4mEQccmkAInNpBP3c/edit?usp=drive_link](https://docs.google.com/document/d/1v16fbtfk8-Koa26i8Gu2KPpIsK4mEQccmkAInNpBP3c/edit?usp=drive_link)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1v16fbtfk8-Koa26i8Gu2KPpIsK4mEQccmkAInNpBP3c/edit?usp=drive_link](https://drive.google.com/file/d/1_dfWpCSX4DdwQw9SRHmLzS4n8W84_Dm1/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
